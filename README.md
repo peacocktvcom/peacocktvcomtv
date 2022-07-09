@@ -1,6 +1,7 @@
 ## peacocktv.com/tv
 # Peacocktv.com/tv – Peacock.com/tv enter code
 [![Peacocktv.com/tv](get-start.png)](https://www.peacocktvcom-tv.com/)
+
 Peacocktv.com/tv activation Peacock TV can be used as an online streaming service. It allows users access Peacocktv.com tv activation in order to stream shows from NBC over the internet.
 
 Peacock is an American streaming service that streams video over the top. It is managed and operated by the Television and Streaming division at NBCUniversal. This division is a subsidiary to Comcast.
