@@ -1,6 +1,6 @@
 ## peacocktv.com/tv
 # Peacocktv.com/tv – Peacock.com/tv enter code
-[![Peacocktv.com/tv](get-start.png)](https://www.peacocktvcom-tv.com/)
+[![Peacocktv.com/tv](get-start.png)](https://sites.google.com/view/peacocktvcom-tv/)
 
 Peacocktv.com/tv activation Peacock TV can be used as an online streaming service. It allows users access Peacocktv.com tv activation in order to stream shows from NBC over the internet.
 
